@@ -1,5 +1,3 @@
-JessicaDevs' to-do list page
-- [ ] Purchase a skirt
-- [ ] Buy extra tights/fishnets
+JessicaDevs' outfit inspiration page
       
-[`#0969DA`](https://jessicadevs.github.io/hannahowos/edits.md/)
+[`#0969DA`](https://jessicadevs.github.io/hannahowos/hannah.md)
