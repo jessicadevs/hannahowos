@@ -1,2 +1,11 @@
 # sigma
 ![ALT](IMG_1121.jpeg)
+![ALT](IMG_1090.jpeg)
+![ALT](IMG_1083.jpeg)
+![ALT](IMG_1092.jpeg)
+![ALT](IMG_1069.jpeg)
+![ALT](IMG_1086.jpeg)
+![ALT](IMG_1087.jpeg)
+![ALT](IMG_1088.jpeg)
+![ALT](IMG_1084.jpeg)
+![ALT](IMG_1074.jpeg)
