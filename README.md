@@ -1,2 +1,2 @@
 # sigma
-![ALT](file)p
+![ALT](file)
