@@ -1,2 +1,2 @@
 # sigma
-![ALT](file)
+![ALT](IMG_1121.jpeg)
