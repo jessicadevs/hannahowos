@@ -1,4 +1,7 @@
 ![BLISS](IMG_1121.jpeg)
+![BLISS](IMG_1162.jpeg)
+![BLISS](IMG_1159.jpeg)
+![BLISS](IMG_1160.jpeg)
 ![HANNAH](IMG_1090.jpeg)
 ![HANNAH](IMG_1083.jpeg)
 ![HANNAH](IMG_1092.jpeg)
